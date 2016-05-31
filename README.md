@@ -1,2 +1,2 @@
 # Ogar-unlimmited-party
-pls no
+Every pull request is welcomed here :yum:
